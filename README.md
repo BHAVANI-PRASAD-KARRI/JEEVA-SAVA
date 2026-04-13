@@ -142,8 +142,8 @@ http://127.0.0.1:5000/
 
 **Karri Bhavani Prasad**
 
-📧 Email: [your-email@example.com](mailto:your-email@example.com)
-🔗 LinkedIn: https://linkedin.com/in/your-profile
+📧 Email: bhavaniprasadkarri123@gmail.com
+🔗 LinkedIn: https://linkedin.com/in/BHAVANI-PRASAD-KARRI
 
 ---
 
